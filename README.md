@@ -1,0 +1,2 @@
+# LegalEase-Suguna
+LegalEase-Suguna
